@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Joward Liu | 刘佳旺
+# 👋 Hi, I'm Joward Liu | 刘兆文
 
 <div align="center">
   
